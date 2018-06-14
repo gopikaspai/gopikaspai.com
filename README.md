@@ -1,1 +1,0 @@
-# gopikaspai.com
